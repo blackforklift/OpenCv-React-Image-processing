@@ -13,5 +13,5 @@
 <br/>
 <br/>
 <br/>
-![ansyf](https://user-images.githubusercontent.com/81161466/235329851-69bf2bed-8d16-43ff-9161-e4f9b5ca1816.png)
+![yatay](https://user-images.githubusercontent.com/81161466/235329937-fc082345-85fe-432c-8f8d-601c7160e6c1.png)
 
